@@ -1,0 +1,3 @@
+## Kooperation
+
+Um in einer Welt frei von Krisen und Konflikten zu leben, muss man diese an der Wurzel packen. Dies geschieht am besten in Form von Hilfs- und Kooperationsprogrammen. Menschen die in einem Krisengebiet leben, ist am besten geholfen indem man ihnen wieder ein stabiles sicheres und lebenswürdiges Umfeld verschafft. Von einer derartigen Lösung profitieren aber auch beide Seiten, denn anstatt unzählige Gelder in die Bekämpfung von Flüchtlingen auszugeben, sollte man lieber das Geld verwendet ihnen eben jenes Umfeld bieten in derer sie eine Zukunft haben.
