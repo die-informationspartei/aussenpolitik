@@ -5,8 +5,8 @@
 
 Der immer gültige Grundsatz der deutschen Außenpolitik ist der Grundsatz des Blitzfriedens. 
 Unterstützungen für Staaten ist niemals in Form von Waffen zulässig. 
-_Dieser Grundsatz kann nicht außer Kraft gesetzt werden. Änderungen müssen dem Wesen der Aussage gerecht werden._ 
----
+*Dieser Grundsatz kann nicht außer Kraft gesetzt werden. Änderungen müssen dem Wesen der Aussage gerecht werden.* 
+
 __Ziele im Überblick__ 
 Wir möchten die Bundeswehr durch den Bundeskatastrophenschutz ersetzen. 
 Wir befürworten es aus der NATO austreten. 
